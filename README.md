@@ -1,1 +1,1 @@
-<a href="https://jamescollins.com.au/"><img src="https://i.imgur.com/Ag7BlYO.png"></a>
+<a href="https://jamescollins.com.au/"><img src="https://i.imgur.com/jF48tLo.jpg"></a>
